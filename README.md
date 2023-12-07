@@ -116,3 +116,5 @@
 * [Zbog nebouzdunanog života mog](https://www.youtube.com/watch?v=c5gyGO5I9MA&t=162s)
 * [Bogami mu je prokiso krov... napao ga moljac](https://www.youtube.com/watch?v=c5gyGO5I9MA&t=423s)
 * [Ti si se zarazio (200 na sat)](https://www.youtube.com/watch?v=UE8i_DpYpxw&t=61s)
+* [Ma ne verujem ja u to ko ni u Jugoslaviju](https://www.youtube.com/watch?v=LVMwGXWQ-t8&t=531s)
+* [Pusti mozak jer on brigu ne voli](https://www.youtube.com/watch?v=zeoPFdeEjP0&t=394s)
