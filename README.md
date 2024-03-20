@@ -119,3 +119,5 @@
 * [Ma ne verujem ja u to ko ni u Jugoslaviju](https://www.youtube.com/watch?v=LVMwGXWQ-t8&t=531s)
 * [Pusti mozak jer on brigu ne voli](https://www.youtube.com/watch?v=zeoPFdeEjP0&t=394s)
 * [Ja treba da jejemstvujemljem?](https://www.youtube.com/watch?v=v5646TCB6C0&t=230s)
+* [Napitak, prejaka je magija](https://www.youtube.com/watch?v=G44j_1cKpHQ&t=350s)
+* [Pička ti m zvezdica](https://www.youtube.com/watch?v=G44j_1cKpHQ&t=626s)
